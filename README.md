@@ -1,2 +1,2 @@
-# durov-musktea
+# project-tea
 want to eligible tea airdrop please
